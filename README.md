@@ -1,4 +1,4 @@
-### Hi there 👋
+### my favorite food is spicy food 
 
 <!--
 **gooozooo/gooozooo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
